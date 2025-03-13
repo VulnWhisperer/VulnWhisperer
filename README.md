@@ -2,7 +2,7 @@
 - 👀 I’m interested in Infosec
 - 🌱 I’m currently working as Network Security Engineer
 - 💞️ I’m looking to collaborate on banning every AI tool available in the net
-- 📫 How to reach me <NULL>
+- 📫 How to reach me (please DON'T)
 - 😄 Pronouns: JARVIS
 - ⚡ Fun fact: DOTA > LoL
 
